@@ -1,3 +1,4 @@
+WhatsApp Image 2025-04-01 at 11.45.39.jpeg
 ☘ SUPPORT OS ☘  
   
 ➽ Debian 10 & 11 (recommended)   
